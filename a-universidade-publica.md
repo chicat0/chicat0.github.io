@@ -1,12 +1,15 @@
 # A Universidade Pública
 
-Lugar cosmopolitano da ordem artificial, do bem artificial. Onde a _beautiful people_ discente tem como rotina mostrar-se caridosa e superior, mas tudo não passa de fachada para esconder suas próprias rachaduras morais. Aos divergentes: os olhares feios, o cinismo, o ostracismo.
+Lugar cosmopolitano da ordem artificial, do bem artificial. Onde a _beautiful people_ discente tem como rotina mostrar-se caridosa e superior, ainda que tudo não passe de fachada para mascarar suas próprias rachaduras morais. Aos divergentes: os olhares feios, o cinismo, o ostracismo.
 
-Onde o jovem, esse ser puro e iluminado, acha que vai mudar o mundo. Mas tudo é uma ilusão, masturbação coletiva numa câmara de eco frágil e elitilizada. Dita ***univers***idade, mas um universo à parte. Isolado. Efêmero. Bolha distante e desconexa do mundo real.
+Onde o jovem, esse ser puro e iluminado, acha que vai mudar o mundo. Mas tudo é uma ilusão, masturbação coletiva pueril numa câmara de eco frágil e elitilizada. Dita ***univers***idade, mas um universo à parte. Isolado. Efêmero. Bolha distante e desconexa do mundo real.
 
-A universidade pública paga de lógica e racional. Mas professores fazem [reuniãozinha "em ato de completo desespero"](boliro.txt) para convencer meia dúzia de gatos pingados a votarem no candidato deles. E, depois, ainda levam esporro do diretor.
+Onde espera-se encontrar a proximidade e semelhança com seus pares por área de atuação e gostos em comum. Mas logo o acolhimento inicial vai por água abaixo, e a verdade crua vem à tona: iguais, mas uns mais iguais que os outros.
 
-Onde coletivinho feminista tem a audácia de [mandar um cala-a-boca a docentes](redes-socias.txt), logo em seguida a um deles sofrer difamação de uma aluna, pelo simples fato de emitir uma breve e objetiva opinião.
+Onde os estudantes defendem o tal _ensino público e de graça_ como um dogma fervoroso, fazendo vista grossa para o grande número de indíviduos que se beneficiam indevidamente do mesmo a despeito de, simultaneamente ou não, elevada condição financeira e desempenho pífio nos estudos. Nesse jogo social, é como se a sociedade fosse o inquilino e os estudantes, os hóspedes; exceto que o inquilino paga para você morar e os piores estudantes, anarquicamente, decidem o que fazer com a casa (num processo popularmente conhecido como _greve estudantil_).
 
+A universidade pública se gaba de ser lógica e racional. Mas professores fazem [reuniãozinha patética "em ato de completo desespero"](boliro.txt) para convencer meia dúzia de gatos pingados a votarem no candidato presidencial deles. Depois, ainda levam esporro do diretor.
 
+Onde coletivozinho feminista tem a audácia de [mandar um cala-a-boca a docentes](redes-socias.txt), logo em seguida a um deles sofrer difamação de uma aluna, pelo simples fato de emitir uma breve e objetiva opinião.
 
+Onde todo instituto ou curso precisa ter seu próprio grupo de extensão voltado às "causas sociais" (coincidentemente &mdash; ou não &mdash; o da Computação surgiu justo [no ano em que a entrada no curso [710-13] teve a concorrência mais baixa nos últimos tempos](https://acervo.fuvest.br/fuvest/2017/FUVEST_2017_inscritos_por_opcao_de_curso_apos_especificas_antecipadas.pdf)).
