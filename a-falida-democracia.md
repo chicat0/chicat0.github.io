@@ -6,7 +6,7 @@ Onde tende-se a glamorizar o eleitor médio, o "poder do povo", num país onde [
 
 Onde não existe nenhum tipo de responsabilidade de mandato, além do que é designado pelo mero cumprimento da lei. Prefeito ou presidente eleito anda fazendo um trabalho ruim? Aguente o mesmo por quatro anos sem chance de encurtar o sofrimento (salvo impeachment). Eleições são, na prática, _contratos de fidelidade/adesão a longo prazo_ ao qual todos são obrigados a tortuosamente aderir (independentemente do voto proferido).
 
-Onde a mero questionamento sobre a confiabilidade e auditabilidade do voto eletrônico é reagido com histeria midiática e visto como um ataque direto ao tal "Estado Democrático de Direito"; a despeito do entendimento de que nenhum sistema de votação é factualmente perfeito, [e o mesmo vale para urnas eletrônicas](https://www.youtube.com/watch?v=LkH2r-sNjQs).
+Onde o mero questionamento sobre a confiabilidade e auditabilidade do voto eletrônico é reagido com histeria midiática e visto como um ataque direto ao tal "Estado Democrático de Direito"; a despeito do entendimento de que nenhum sistema de votação é factualmente perfeito, [e o mesmo vale para urnas eletrônicas](https://www.youtube.com/watch?v=LkH2r-sNjQs).
 
 Onde o povo contenta-se com migalhas de participação indireta em período quadrienal, exceto nos raríssimos casos de consulta popular; [a última, há quase duas décadas e anulada numa canetada no ano seguinte](https://en.wikipedia.org/wiki/2005_Brazilian_firearms_and_ammunition_referendum).
 
