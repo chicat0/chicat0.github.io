@@ -8,7 +8,7 @@ Onde um adolescente de 14 anos pode fazer sexo com um adulto, mas não pode vota
 
 Exceto quanto à questão etária, não há qualquer restrição substancial no que diz respeito a quem vota, nem a quem pode ser eleito. Ao comparar o extremo contraste entre o que era a democracia em seu alvorecer (Grécia antiga) e a idiocracia nos moldes atuais, nos resta a dura constatação: a piada já vem pronta.
 
-Onde a polarização é marca-registrada, e candidatos idolatrados como times de futebol. Reflexo máximo disso foi a última eleição presidencial, na qual [quase 92% dos votos válidos no 1º turno foram para Lula ou Bolsonaro](primeiro-turno-2022.png), ainda que ambos fossem indíviduos de notória rejeição.
+Onde a polarização é marca-registrada, e candidatos idolatrados como times de futebol. Como reflexo máximo disso, a última eleição presidencial: [quase 92% dos votos válidos no 1º turno acabaram entre Lula e Bolsonaro](primeiro-turno-2022.png), ainda que ambos sejam indíviduos de notória rejeição.
 
 Onde não existe nenhum tipo de responsabilidade de mandato, além do designado pelo mero cumprimento da lei. Prefeito ou presidente eleito anda fazendo um trabalho ruim? Aguente o mesmo por quatro anos sem chance de encurtar o sofrimento (salvo impeachment). Eleições são, na prática, _contratos de fidelidade/adesão a longo prazo_ ao qual todos são obrigados a masoquisticamente aderir (independentemente do voto proferido).
 
