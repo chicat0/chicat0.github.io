@@ -4,7 +4,7 @@ Sistema no qual candidatos especializam-se em _ganhar eleições_, e não em _go
 
 Onde tende-se a glamorizar o eleitor médio, o "poder do povo", num país onde [quase 30% da população é analfabeta funcional, e menos de 40% possui alfabetização acima do nível elementar](https://s4.static.brasilescola.uol.com.br/be/2024/06/analfabetismo-funcional-niveis-brasil.jpg). Enquanto você discute com seus pares sobre os intricados modelos econômicos a serem adotados pelo candidato X ou Y, quem decide a eleição é o dito-cujo que não sabe a diferença entre um deputado e um ministro; ou a velhinha que votou no número que recebeu na caixa de correio um dia antes.
 
-Onde um adolescente de 14 anos pode fazer sexo com um adulto, mas não pode votar. Já alguém de 16 anos pode votar, mas não pode beber nem dirigir.
+Onde um adolescente de 14 anos pode fazer sexo com um adulto, mas não pode votar. Já alguém de 16 pode votar, mas não pode beber nem dirigir.
 
 Exceto quanto à questão etária, não há qualquer restrição substancial no que diz respeito a quem vota, nem a quem pode ser eleito. Ao comparar o extremo contraste entre o que era a democracia em seu alvorecer (Grécia antiga) e a idiocracia nos moldes atuais, nos resta a dura constatação: a piada já vem pronta.
 
