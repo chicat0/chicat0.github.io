@@ -22,7 +22,7 @@ Onde considera-se uma boa ideia ter o número fixo de três senadores por estado
 
 Onde encara-se com normalidade a escancarada falta de meritocracia na escolha de ministros para a nossa suprema corte &mdash; tais superhumanos, ao contrário de reles mortais como nós, aparentemente estão acima de falhas de lisura ou inclinações políticas (e o mesmo vale para quem os põe lá).
 
-Tudo resultado de uma imensa cópi-cola de um sistema que teve seu auge nos Estados Unidos e seguiu-se adaptado por toda a América Latina, terras tupiniquins inclusas.
+Tudo resultado de uma imensa cópi-cola de um modelo que teve seu auge nos Estados Unidos e seguiu-se adaptado por toda a América Latina, terras tupiniquins inclusas.
 
 Ainda assim, os ditos _esclarecidos_ (aqueles mesmos com a arrogância de rotularem seus opositores como _alienados_) continuarão a defender tal sistema sacrossanto com o fervor de suas almas. Curiosamente, tal complacência parcial não se aplica a tópicos que não os convém.
 
