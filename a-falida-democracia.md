@@ -10,7 +10,7 @@ Exceto quanto à questão etária, não há qualquer restrição substancial no 
 
 Onde a polarização é marca-registrada, e candidatos idolatrados como times de futebol. Como reflexo máximo disso, a última eleição presidencial: [quase 92% dos votos válidos no 1º turno acabaram entre Lula e Bolsonaro](primeiro-turno-2022.png), ainda que ambos sejam indíviduos de notória rejeição.
 
-Onde não existe nenhum tipo de responsabilidade de mandato, além do designado pelo mero cumprimento da lei. Prefeito ou presidente eleito anda fazendo um trabalho ruim? Aguente o mesmo por quatro anos sem chance de encurtar o sofrimento (salvo impeachment). Eleições são, na prática, _contratos de fidelidade/adesão a longo prazo_ ao qual todos são obrigados a masoquisticamente aderir (independentemente do voto proferido).
+Onde não existe nenhum tipo de responsabilidade de mandato, além do designado pelo mero cumprimento da lei. Prefeito ou presidente eleito anda fazendo um trabalho ruim? Aguente o mesmo por quatro anos sem chance de encurtar o sofrimento (salvo impeachment). Eleições são, na prática, _contratos de fidelidade/adesão a longo prazo_ aos quais todos são obrigados a masoquisticamente aderir (independentemente do voto proferido).
 
 Onde o mero questionamento sobre a confiabilidade e auditabilidade do voto eletrônico é reagido com histeria midiática e visto como um ataque direto ao tal "Estado Democrático de Direito"; a despeito do entendimento de que nenhum sistema de votação é factualmente perfeito, [e o mesmo vale para urnas eletrônicas](https://www.youtube.com/watch?v=LkH2r-sNjQs).
 
