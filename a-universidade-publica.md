@@ -6,7 +6,7 @@ Onde o jovem, esse ser puro e iluminado, acha que vai mudar o mundo. Mas tudo é
 
 Onde espera-se encontrar a proximidade e semelhança com seus pares por área de atuação e gostos em comum. Mas logo o acolhimento inicial vai por água abaixo, e a verdade crua vem à tona: iguais, mas uns mais iguais que os outros.
 
-Onde os estudantes defendem o tal _ensino público e de graça_ como um dogma fervoroso, fazendo vista grossa para o grande número de indíviduos que se beneficiam indevidamente do mesmo a despeito de, simultaneamente ou não, elevada condição financeira e desempenho pífio nos estudos. Nesse jogo social, é como se a sociedade fosse o inquilino e os estudantes, os hóspedes; exceto que o inquilino paga para você morar e os piores estudantes, anarquicamente, decidem o que fazer com a casa (num processo popularmente conhecido como _greve estudantil_).
+Onde os estudantes defendem o tal _ensino público e de graça_ como um dogma fervoroso, fazendo vista grossa para o grande número de indíviduos que se beneficiam indevidamente do mesmo a despeito de, simultaneamente ou não, elevada condição financeira e desempenho pífio nos estudos. Nesse jogo social, é como se a sociedade fosse a proprietária do imóvel e os estudantes, os inquilinos; exceto que o proprietário paga para você morar, e os piores estudantes decidem o que fazer com a casa (num processo anárquico conhecido como _greve estudantil_).
 
 A universidade pública se gaba de ser lógica e racional. Mas professores fazem [reuniãozinha patética "em ato de completo desespero"](boliro.txt) para convencer meia dúzia de gatos pingados a votarem no candidato presidencial deles. Depois, ainda levam esporro do diretor.
 
