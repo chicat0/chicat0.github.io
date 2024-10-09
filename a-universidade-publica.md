@@ -13,3 +13,7 @@ A universidade pública se gaba de ser lógica e racional. Mas professores fazem
 Onde coletivozinho feminista tem a audácia de [mandar um cala-a-boca a docentes](redes-socias.txt), logo em seguida a um deles sofrer difamação de uma aluna, pelo simples fato de emitir uma breve e objetiva opinião.
 
 Onde todo instituto ou curso precisa ter seu próprio grupo de extensão voltado às "causas sociais" (coincidentemente &mdash; ou não &mdash; o da Computação surgiu justo [no ano em que a entrada no curso [710-13] teve a concorrência mais baixa nos últimos tempos](https://acervo.fuvest.br/fuvest/2017/FUVEST_2017_inscritos_por_opcao_de_curso_apos_especificas_antecipadas.pdf)).
+
+Mas faz parte do sangue da própria universidade sinalizar virtude e mostrar-se superior no quesito bondade. Daí criam-se [programas disso e aquilo](https://jornal.usp.br/institucional/usp-cria-nova-pro-reitoria-para-ampliar-acoes-de-inclusao-e-pertencimento/), que não passam de meios de catalisar politicagem em prol de causas identitárias. Ao invés de incluir, divide-se.
+
+Onde a despeito de medidas superficiais e mastigáveis em prol da tal "saúde mental", na prática e no dia-a-dia nota-se o que realmente acontece: professores tóxicos, [sistema letivo estressante e anacrônico](problemas-cronicos.html), segregação promovida pelos próprios estudantes, processos administrativos unilaterais...
